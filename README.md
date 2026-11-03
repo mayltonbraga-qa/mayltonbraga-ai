@@ -28,7 +28,7 @@ With an academic background in Advertising and extensive corporate experience in
 ---
 
 ### 📬 Connect With Me
-- **LinkedIn:** [LinkedIn.com/mayltonbraga]
+- **LinkedIn:** [[LinkedIn.com/mayltonbraga](https://www.linkedin.com/in/mayltonbraga/)]
 - **Email:** [mayltonbraga@gmail.com]
 
 
